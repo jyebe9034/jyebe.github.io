@@ -4,3 +4,10 @@ But at that time, I didn't have enough money for buying them.
 Now I'm working steadily and I paid pretty good.
 I'm sooo excited now and I'm going to pick my iPad up in Applestore tomorrow.
 Hopefully, I could learn some programming tomorrow night.
+
+
+I picked my iPad Pro up today.
+It was pretty long trip.
+So I'm too tired..haha
+I need to go to bed now.
+See you then.
